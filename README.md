@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @victorVikeethLobo
-- 📫 How to reach me ...lobovelerian@gmial.com
+- 📫 How to reach me ...vikeethlobo@gmail.com
 - 😄 Pronouns: ...
 .=
 
